@@ -1,0 +1,1 @@
+# Amos is god
